@@ -1,4 +1,4 @@
-# Clinica-M-dica-Sem-Dod-i-Ltda.-
+# CLINICA MEDICA SEM DODOI LTDA.
 ATIVIDADE 1. 
 PARTE 1. 
 INDIVIDUAL 
